@@ -1,0 +1,2 @@
+# hamanogolfclub_presentation
+浜野ゴルフクラブ様 ｷｭｰﾋﾞｸﾙ及び高圧ｹｰﾌﾞﾙ改修工事 ご提案書
